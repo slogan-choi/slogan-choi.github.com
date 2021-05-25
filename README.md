@@ -1,1 +1,1 @@
-# slogan-choi.github.com
+# 20210525 BLOG 시작
